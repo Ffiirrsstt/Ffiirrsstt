@@ -84,7 +84,7 @@
 <br><p align="center"><i>- All our dreams can come true , if we have the courage to pursue them -</i></p><br>
 <p align="center">
 
-<img title="Ananya Sae-Tae" width="455px" src="https://scontent.fbkk22-7.fna.fbcdn.net/v/t39.30808-6/345654175_567335771933198_532647323781512923_n.jpg?_nc_cat=107&ccb=1-7&_nc_sid=730e14&_nc_eui2=AeFEfi8uQjDVstk3wkJ0CSj-DSypacJjkJINLKlpwmOQkmlQOZgW-cp7tT77vhkMcqmU1OrL2B7i5nKCwLdGKs-r&_nc_ohc=G4q4Il8VKKUAX8KyNp5&_nc_ht=scontent.fbkk22-7.fna&oh=00_AfAVIYiYrNrWPgKpZtq8iA-pWom9PJgqWmUgbVDOPKzasw&oe=646D8CC1"/>
-<img title="RSU" width="500px" src="https://scontent.fbkk22-7.fna.fbcdn.net/v/t39.30808-6/345876150_3408829226023395_6892781101989006146_n.jpg?_nc_cat=107&ccb=1-7&_nc_sid=730e14&_nc_eui2=AeFVG6Cmh8_ONrsqasSEX62pGXnBDw30Ug0ZecEPDfRSDf__Bc1-jXctQe4KneV6vDNh-mq7jcNEgFD5u4wFEcmq&_nc_ohc=hxtbvDzcuWEAX9FiSAj&_nc_ht=scontent.fbkk22-7.fna&oh=00_AfDQzxKBcYtLrYQAO0_SgoYjFcVdm-09bVGxPrhXEgRr3g&oe=646C40B6"/>
+<img title="Ananya Sae-Tae" width="600px" src="https://scontent.fbkk22-7.fna.fbcdn.net/v/t39.30808-6/345654175_567335771933198_532647323781512923_n.jpg?_nc_cat=107&ccb=1-7&_nc_sid=730e14&_nc_eui2=AeFEfi8uQjDVstk3wkJ0CSj-DSypacJjkJINLKlpwmOQkmlQOZgW-cp7tT77vhkMcqmU1OrL2B7i5nKCwLdGKs-r&_nc_ohc=G4q4Il8VKKUAX8KyNp5&_nc_ht=scontent.fbkk22-7.fna&oh=00_AfAVIYiYrNrWPgKpZtq8iA-pWom9PJgqWmUgbVDOPKzasw&oe=646D8CC1"/>
+<img title="RSU" width="600px" src="https://scontent.fbkk22-7.fna.fbcdn.net/v/t39.30808-6/345876150_3408829226023395_6892781101989006146_n.jpg?_nc_cat=107&ccb=1-7&_nc_sid=730e14&_nc_eui2=AeFVG6Cmh8_ONrsqasSEX62pGXnBDw30Ug0ZecEPDfRSDf__Bc1-jXctQe4KneV6vDNh-mq7jcNEgFD5u4wFEcmq&_nc_ohc=hxtbvDzcuWEAX9FiSAj&_nc_ht=scontent.fbkk22-7.fna&oh=00_AfDQzxKBcYtLrYQAO0_SgoYjFcVdm-09bVGxPrhXEgRr3g&oe=646C40B6"/>
 </p>
 <br>
