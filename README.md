@@ -21,7 +21,9 @@
     <br>
         Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ Ƹ̵̡Ӝ̵̨̄Ʒ 
             <br> <br> <br>
+                <a href="https://www.youtube.com/watch?v=TnAJzZehHro&t=103s">
                    <img title="Life and Study schedule" alt="Life and Study schedule" width="500px" style="padding-right:10px;" src="https://scontent.fbkk22-2.fna.fbcdn.net/v/t1.15752-9/346131294_222450450501534_1824875997688960952_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=ae9488&_nc_eui2=AeFSWM6paz-ycBrOQRaecrCDbZ7RYqImBmNtntFioiYGY-2hG7GHSZ3EhEC4-0TDBuchGbhOpcTgaN7swJtqitLV&_nc_ohc=6YPEfujd6AwAX9c2DPC&_nc_ht=scontent.fbkk22-2.fna&oh=03_AdTvEkTowM-zq3FfvkC7yCnYbAIxBOi2dKeYyNgwM7EDYA&oe=648F25A0"/>
+                </a>
              <br> <br> <br>
         <i>"The theory I like the most is the butterfly effect - small, seemingly insignificant things that can bring about profound changes."</i>
     <br> <br>
