@@ -14,6 +14,8 @@
 <br><br>
 * 🌍  I'm based in Thailand
 
+* 🖥️  See my portfolio at [MyPortfolio](https://ananya-s-portfolio.vercel.app/) new!
+  
 * 🖥️  See my portfolio at [MyPortfolio](http://portfoliobyananya.netlify.app/)
   
 * ✉️  You can contact me at [first.engineer15@gmail.com](mailto:first.engineer15@gmail.com)
